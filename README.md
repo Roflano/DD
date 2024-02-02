@@ -1,1 +1,1 @@
-[wiki](https://www.wikipedia.org/)
+Whether you have experience in gambling or you have decided to try this type of leisure for the first time, modern gambling platforms provide really cool conditions so that players feel safe in the gaming process. For me, a cool solution was Bitcoin dice here [https://duckdice.io/](https://duckdice.io/). In my opinion, classic games like roulette, poker, slots, blackjack and so on have already become boring, and solutions such as dice are like a fresh air.
